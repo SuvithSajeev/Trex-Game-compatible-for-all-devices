@@ -1,0 +1,1 @@
+# Trex-Game-compatible-for-all-devices
